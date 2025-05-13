@@ -1,4 +1,4 @@
-# 🎯 Unlock Rewards with Tiranga Game Invite Code 2757419478643 and Tiranga Invite Code 2757419478643
+# 🎯Tiranga Game Invite Code 2757419478643 and Tiranga Invite Code 2757419478643
 
 Hey there, Tiranga fan! 👋
 
